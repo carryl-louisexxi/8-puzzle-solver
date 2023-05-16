@@ -6,3 +6,5 @@ Instructions:
 
 ![image](https://user-images.githubusercontent.com/69174836/151368349-fbb1877d-a3df-4ef9-8cb7-c7df3f3fc732.png)
 
+ALL CODES ARE WRITTEN BY THE OWNER.
+
